@@ -5,7 +5,7 @@
 Os passa tempos que eu mais gosto 
 
 - 🎮 eu gosto de jogar com os amigos
-- ⚔️ eu gosto geralmente de filmes&series de ação
+- ⚔️ eu gosto geralmente de filmes & series de ação
 - 🏃 As vezes uma pequena corrida e maravilhosa 
 - 📖 eu sou um estundante de ensino medio
 - ⛪ todos os domingos eu vou a igreja
